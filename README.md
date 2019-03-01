@@ -16,19 +16,11 @@ jduasdhiksdfh
 ñfogjñmjd
 
 
+
 si señor
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 ksjdga.kfjgsk
+
+Resolve conflics
+
